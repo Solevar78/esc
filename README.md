@@ -4,9 +4,7 @@ https://www.youtube.com/watch?v=coMIcMdWGV0
 https://www.youtube.com/watch?v=MKW6jvkF0_Q
 https://workupload.com/file/2yupTsk5Sgy
 
-https://www.youtube.com/watch?v=FbY2OfcKs2c
 
-https://mega.nz/file/SpJBkbCS#h6S5RsYrVA_A29BB1bMTUrb-KtnVKFANpJV1SAo3rEE
 https://www.youtube.com/watch?v=MOgOslFJHqc&rco=1
 
 https://www.youtube.com/watch?v=ZayxqJJcPjM
