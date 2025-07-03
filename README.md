@@ -25,3 +25,4 @@ https://www.youtube.com/watch?v=YrxR6WaagK4
 
 
 https://gitlab.com/UnamSactam/SilentCryptoMiner
+pool.hashvault.pro:443
