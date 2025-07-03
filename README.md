@@ -5,7 +5,7 @@ https://www.youtube.com/watch?v=MKW6jvkF0_Q
 https://workupload.com/file/2yupTsk5Sgy
 
 
-https://www.youtube.com/watch?v=MOgOslFJHqc&rco=1
+ https://hookstore.ru/
 
 https://www.youtube.com/watch?v=ZayxqJJcPjM
 https://www.youtube.com/watch?v=lJQmPYDpMN4
