@@ -28,3 +28,5 @@ https://gitlab.com/UnamSactam/SilentCryptoMiner
 pool.hashvault.pro:443
 
 etc.2miners.com:11010
+
+49Byd42zNJDFykDmyia5h3RujCGGU9qM13L2Q6dd7jq83jj4fg6p1CH8BSJAAFBU9dTFow4zrfvqLR424hSPxUhhPCXMGSK
