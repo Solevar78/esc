@@ -30,7 +30,8 @@ https://disk.yandex.ru/d/33GdUzLccWX6UA
 https://gitlab.com/UnamSactam/SilentCryptoMiner
 pool.hashvault.pro:443
 
-etc.2miners.com:11010
+8507136568:AAGckrtSRX0Ks5o5Svxne475XD8wZ7eOlIE
+5801620744
 
 https://clck.ru/3QnuZW
 
