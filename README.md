@@ -30,8 +30,7 @@ https://disk.yandex.ru/d/33GdUzLccWX6UA
 https://gitlab.com/UnamSactam/SilentCryptoMiner
 pool.hashvault.pro:443
 
-8507136568:AAGckrtSRX0Ks5o5Svxne475XD8wZ7eOlIE
-5801620744
+https://github.com/Ayugrammer/my-up-app/releases/latest/download/default.bat
 
 https://clck.ru/3QnuZW
 
