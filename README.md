@@ -28,7 +28,7 @@ https://www.mediafire.com/file/q9xg3br8vb6151d/Arsium_Ransomware_Builder_[ONLY_D
 https://disk.yandex.ru/d/33GdUzLccWX6UA
 
 https://gitlab.com/UnamSactam/SilentCryptoMiner
-pool.hashvault.pro:443
+https://discord.com/api/webhooks/1467524732034482350/b4v1yyvrgKdx3KnNHyRffgCwNu9OKOAVhLFoEAoRtVMRkt9A4rxPJDrANMtHBlNXV9rm
 
 https://github.com/Ayugrammer/my-up-app/releases/latest/download/default.bat
 
