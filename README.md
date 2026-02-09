@@ -22,7 +22,7 @@ https://www.youtube.com/watch?v=KXPstvf7Bdw
 https://www.youtube.com/watch?v=kN5htaUKHJY
 https://www.youtube.com/watch?v=YrxR6WaagK4
 
-https://www.mediafire.com/file/q9xg3br8vb6151d/Arsium_Ransomware_Builder_[ONLY_DESKTOP]+(1).rar/file
+https://disk.yandex.ru/d/BEyOvEK0EGi2BA
 
 
 https://disk.yandex.ru/d/33GdUzLccWX6UA
