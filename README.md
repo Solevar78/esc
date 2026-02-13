@@ -22,10 +22,7 @@ https://www.youtube.com/watch?v=KXPstvf7Bdw
 https://www.youtube.com/watch?v=kN5htaUKHJY
 https://www.youtube.com/watch?v=YrxR6WaagK4
 
-https://disk.yandex.ru/d/BEyOvEK0EGi2BA
 
-
-https://disk.yandex.ru/d/33GdUzLccWX6UA
 
 https://gitlab.com/UnamSactam/SilentCryptoMiner
 https://discord.com/api/webhooks/1467628383390269490/9gKKP0kGZHlHnI5M8vJvdapBIO3KLOCuWYiySh50oCjzQ90C5P-2_TduipI2OX5KKPkl
@@ -34,7 +31,3 @@ https://github.com/Ayugrammer/my-up-app/releases/latest/download/default.bat
 
 https://clck.ru/3QnuZW
 
-https://disk.yandex.ru/d/WjW5A-eqbIM_bA
-https://disk.yandex.ru/d/3cawZfqkb4-RiQ
-https://disk.yandex.ru/d/j10_OVBdyG3w4w
-https://disk.yandex.ru/d/Ylhpuj0dlAitzg
